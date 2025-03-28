@@ -8,3 +8,7 @@ Notable quotes from Herman Melville's Moby Dick
 > Locks so grey did never grow but from out some ashes!
 
 It's difficut to excerpt from this chapter, Chapter 132, The Symphony, since it holds so much significance in the character and thematic development. But this is a good line, and heartbreaking. 
+
+> A pale, death-glimmer lit up Fedallah's sunken eyes; a hideous motion gnawed his mouth.
+
+When the turn in your gut manifests itself in the turn of your lips.
